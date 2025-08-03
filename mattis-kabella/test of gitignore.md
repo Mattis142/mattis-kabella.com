@@ -1,1 +1,1 @@
-is this still synced??
+is this still synced?? what about now
